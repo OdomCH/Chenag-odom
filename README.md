@@ -35,4 +35,4 @@
 ---
 
 ## 📫 Contact
-- Email: your-email@gmail.com
+- Email: domkx77@gmail.com
